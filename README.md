@@ -1,4 +1,1 @@
-# Friolento
-
-Amsterdam
 
